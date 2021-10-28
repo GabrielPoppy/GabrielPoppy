@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GabrielPoppy
-- 👀 I’m interested in programaçao e desenahr
+- 👀 I’m interested in programaçao e desenhar
 - 🌱 I’m currently learning sobre programaçao e afins
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
